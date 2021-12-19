@@ -1,0 +1,2 @@
+# RICKI
+Buat yg minat
